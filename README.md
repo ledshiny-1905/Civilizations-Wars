@@ -229,4 +229,4 @@ Civilizations Wars is provided as a full free version, meaning all features and 
 Download Civilizations Wars now and dive into a world of strategy and conquest! Enjoy endless hours of fun and challenges as you build your civilization and conquer your enemies.
 
 ---
-**Last updated:** 2026-10-11 23:24:19 UTC
+**Last updated:** 2026-10-12 02:57:40 UTC
